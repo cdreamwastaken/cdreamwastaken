@@ -2,5 +2,5 @@
                                     
                            rentry:               
                            ꉂ   https://rentry.co/dreem
-                                      メ he/him             
+                                  メ he/him . adult            
                               
